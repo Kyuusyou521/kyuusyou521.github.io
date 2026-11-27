@@ -1,1 +1,0 @@
-# kyuusyou521.github.io
